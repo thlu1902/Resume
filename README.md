@@ -1,6 +1,6 @@
 # Resume
 
-THANH LUU
+					**THANH LUU**
 San Jose, CA | thanhluu1877@gmail.com | (408) 533-5012 | linkedin.com/in/tluu/
 
 WORK EXPERIENCE
